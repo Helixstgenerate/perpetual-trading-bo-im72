@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated perpetual trading bot | position-sizing + auto-leverage, the #1 perpetual trading bot. Includes position-sizing and auto-leverage for a smoother
 
 
 
